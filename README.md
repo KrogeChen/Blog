@@ -21,7 +21,7 @@
 
 ### 关于我
 
-Christian、Guitar Player、爱折腾的软件工程师～
+Christian、Guitar Player、爱折腾的软件工程师～·····
 
 
 
